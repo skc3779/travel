@@ -148,5 +148,9 @@
 
 	블로그 : http://blog.daum.net/jejumooni/828
 
+11. 대들보, 제주도 서귀포시 중문동 위치, 갈비찜 전문업체, 김치찜, 만두, 갈치, 고등어 등 메뉴, 서귀포시 중문동 1489-2, 064-738-6266
+
+	블로그 : http://blog.daum.net/dlwls2345/71
+
 
 Write by Skc.
